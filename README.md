@@ -1,0 +1,2 @@
+# realown.json
+Gausah Rusuh 
